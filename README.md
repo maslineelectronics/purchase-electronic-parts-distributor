@@ -66,8 +66,4 @@ Every product is checked for quality and compliance before it reaches you. Wheth
 Masline Electronics is more than just a supplier—we are a partner businesses trust worldwide.  
 From being a dependable **online electronic parts distributor for business** to serving as a go-to **online electronic components supplier for business**, our goal is to save you time, reduce costs, and give you confidence in every order.  
 
-Choose Masline Electronics—the **best place to buy electronic parts distributor** services when quality and reliability cannot be compromised.  
-
----
-
-with a trusted **purchase electronic components supplier**, and source through a secure **online electronic parts distributor for business** and **online electronic components supplier for business**.
+Choose Masline Electronics—the **best place to buy electronic parts distributor** services when quality and reliability cannot be compromised with a trusted **purchase electronic components supplier**, and source through a secure **online electronic parts distributor for business** and **online electronic components supplier for business**.
